@@ -1,1 +1,1 @@
-gsettings set org.gnome.desktop.background picture-uri "https://analonly.org/wp-content/uploads/2018/06/LatexAngel-chocolate-in-ass-and-exciting-dildo-anal-porn.jpg"
+gsettings set org.gnome.desktop.background picture-uri "https://tse4.mm.bing.net/th?id=OIP.Kk9K__akL_1YmypAR9vmqgHaF0&pid=15.1"
